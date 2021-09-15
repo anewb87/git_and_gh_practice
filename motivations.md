@@ -1,0 +1,1 @@
+I am ready for a big change in my life. I've been wanting something that will add structure to my life, that works with teams, that challenges me, and that I can grow in. Money would also be nice, let's be honest. Software development sounded like it would fit the bill. 
