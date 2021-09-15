@@ -1,0 +1,1 @@
+My favorite travel experiences was an extended one- I lived in Thailand for a year and spent time after I finished my job there to travel around other countries in Southeast Asia, mostly solo. I learned a lot! And ate the most amazing food. Mmmmm. I miss all of it. Especially the food. 
